@@ -3,6 +3,9 @@
 - 🌱 I’m currently learning HTML, CSS, JAVASCRIPT
 - 💞️ I’m looking to collaborate on some Projects
 
+Contact me:
+
+
 Instagram: _piri_shankhan,
 Facebook: Piri Shankhan
 
